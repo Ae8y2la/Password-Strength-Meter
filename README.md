@@ -14,4 +14,4 @@ Easy to integrate and perfect for enhancing security with style.
 
 💮💮
 
-**REACH ME OUT📧:"aeylanaseer@gmail.com"**
+**REACH ME OUT ON DISCORD 👾:"user6790.h"**
